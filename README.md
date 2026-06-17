@@ -1,6 +1,6 @@
 # Kitcheneers Consulting
 
-📞 064 558 2446 | 📧 info.kitcheneers@gmail.com | 📍 Gauteng, South Africa
+📞 +27 60 211 0179 | 📧 info.kitcheneers@gmail.com | 📍 Gauteng, South Africa
 
 **KITCHENEERS CONSULTING (PTY) LTD** (2026/021937/07)
 
@@ -148,7 +148,7 @@ We operate with:
 
 ### Book a Professional Audit Today
 
-📞 **064 558 2446**  
+📞 **+27 60 211 0179**  
 📧 **info.kitcheneers@gmail.com**
 
 **Let's restore control and rebuild profitability.**
