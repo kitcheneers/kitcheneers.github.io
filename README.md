@@ -14,31 +14,17 @@ Kitcheneers is a hospitality profit-improvement partner helping restaurants, hot
 
 ---
 
-## Our Process
+## How We Improve Hospitality Performance
 
-### Step 1 – Consultation
-We identify key operational, financial, and compliance challenges affecting performance, profitability, and service delivery.
+At Kitcheneers, we help hospitality businesses uncover hidden profit opportunities, reduce operational costs, and improve overall performance.
 
-### Step 2 – On-Site Audit
-A structured, in-depth inspection of kitchen operations, stock control, labour cost, hygiene compliance, and management systems.
+Our approach combines operational analysis, financial review, compliance assessment, and practical implementation to identify the factors limiting profitability and growth.
 
-### Step 3 – Strategic Report
-You receive a detailed findings report including:
-- Risk ratings
-- Food cost analysis
-- Labour efficiency review
-- Compliance gaps
-- Practical corrective recommendations
+We assess key areas including kitchen operations, labour efficiency, food and beverage costs, stock management, workflow design, management systems, and regulatory compliance.
 
-### Step 4 – Implementation
-We assist in executing corrective systems including:
-- SOP implementation
-- Cost control systems
-- Stock management structures
-- Kitchen workflow optimisation
+Following our assessment, clients receive a detailed Profit Improvement Report outlining operational risks, cost-saving opportunities, performance gaps, and strategic recommendations. We then work alongside management teams to implement sustainable systems, strengthen accountability, improve operational efficiency, and maximise profitability.
 
-### Step 5 – Monitoring & Follow-Up
-We ensure systems remain effective, measurable, and sustainable with continued performance oversight and support.
+Through ongoing support and performance monitoring, we ensure improvements deliver measurable and lasting results.
 
 ---
 
