@@ -8,11 +8,7 @@
 
 ## About Kitcheneers
 
-Kitcheneers Consulting is a Gauteng-based hospitality consulting firm specialising in restaurant compliance, operational efficiency, and profitability restructuring.
-
-We work with independent restaurants, franchise groups, cafés, and quick service outlets that need more than advice — they need systems that work.
-
-We identify operational weaknesses, financial leakage, compliance risks, and structural inefficiencies, then implement practical solutions that restore control and improve profit margins.
+Kitcheneers is a hospitality profit-improvement partner helping restaurants, hotels, guesthouses, and catering businesses increase profitability through operational efficiency, cost control, menu engineering, and performance management.
 
 **We don't consult from theory. We fix from experience.**
 
