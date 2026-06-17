@@ -30,46 +30,83 @@ Through ongoing support and performance monitoring, we ensure improvements deliv
 
 ## Our Core Services
 
-### 1. Full Operational Audit
-- Kitchen workflow evaluation
-- Equipment condition assessment
-- Staff structure analysis
-- Hygiene inspection
-- Risk rating report
+### Profit Improvement & Performance Audits
 
-### 2. Food Cost & Profitability Analysis
-- Menu engineering matrix
-- Waste control systems
-- Stock control framework
-- Supplier evaluation
-- Gross profit optimisation
+A comprehensive assessment of your operation designed to identify profit leaks, operational inefficiencies, compliance risks, and opportunities for sustainable growth.
 
-### 3. NCC & Health Compliance Audit
-- Consumer Protection Act alignment
-- Health department readiness review
-- Hygiene scoring system
-- Legal risk identification
-- Corrective action plan
+**Includes:**
 
-### 4. SOP Development
-- Full branded kitchen SOP manual
-- Receiving & storage procedures
-- Hygiene protocols
-- Staff discipline systems
-- Operational checklists
+* Operational performance review
+* Kitchen workflow analysis
+* Equipment and asset assessment
+* Labour productivity evaluation
+* Hygiene and compliance inspection
+* Executive findings and recommendations report
 
-### 5. Labour Cost Optimisation
-- Labour % analysis
-- Shift structure redesign
-- Productivity benchmarks
-- Overtime control systems
+### Food Cost & Profit Optimisation
 
-### 6. Restaurant Rescue Programme
-- Crisis intervention strategy
-- Immediate cost containment
-- Operational restructuring
-- Leadership stabilisation
-- 30–90 Day Recovery Plan
+Transform your menu and purchasing systems into powerful profit drivers.
+
+**Includes:**
+
+* Menu engineering and profitability analysis
+* Food cost management
+* Waste reduction systems
+* Supplier performance evaluation
+* Stock control optimisation
+* Margin improvement strategies
+
+### Compliance & Risk Management
+
+Protect your business, your reputation, and your customers through proactive compliance management.
+
+**Includes:**
+
+* Health and safety assessments
+* Hygiene compliance reviews
+* Regulatory readiness evaluations
+* Risk identification and mitigation
+* Corrective action planning
+* Compliance monitoring frameworks
+
+### Systems & Operational Excellence
+
+Build scalable systems that improve consistency, accountability, and operational performance.
+
+**Includes:**
+
+* Standard Operating Procedures (SOPs)
+* Operational manuals
+* Staff accountability systems
+* Quality control procedures
+* Performance monitoring tools
+* Management reporting structures
+
+### Workforce Performance & Labour Optimisation
+
+Improve productivity while maintaining service excellence and labour cost control.
+
+**Includes:**
+
+* Labour cost analysis
+* Workforce planning
+* Shift optimisation
+* Productivity benchmarking
+* Overtime reduction strategies
+* Performance management systems
+
+### Restaurant Turnaround & Recovery
+
+Specialist intervention for underperforming hospitality businesses requiring immediate operational and financial improvement.
+
+**Includes:**
+
+* Business performance assessment
+* Cost containment strategies
+* Operational restructuring
+* Leadership support
+* Recovery implementation plans
+* Ongoing turnaround oversight
 
 ---
 
